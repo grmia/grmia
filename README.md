@@ -1,6 +1,6 @@
 ## Hi, I'm Gabis!
 
-_Se alguém já fez eu também consigo, se ninguém fez, por que não tentar?_
+_Se alguém já fez eu também consigo. Se ninguém fez, por que não tentar?_
 
 ## Who am I?
 
