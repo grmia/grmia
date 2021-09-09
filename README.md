@@ -20,8 +20,8 @@ _Se alguém já fez eu também consigo. Se ninguém fez, por que não tentar?_
 ## Find me 🌎
 
 - [Linkedin](https://www.linkedin.com/in/grmia/)
-- [Instagram](instagram.com/grmia)
-- [Edumi instagram](instagram.com/edumioficial) 💙
+- [Instagram](https://instagram.com/grmia)
+- [Edumi instagram](https://instagram.com/edumioficial) 💙
 - [Anilist](https://anilist.co/user/grmia/animelist)
 
 <!---
